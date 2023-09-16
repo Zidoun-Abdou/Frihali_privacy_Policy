@@ -37,6 +37,6 @@ Changes to this Policy:
 We may update this Privacy Policy. We will notify you of any changes.
 
 Contact Us:
-If you have questions about this Privacy Policy, contact us at [Insert Contact Information].
+If you have questions about this Privacy Policy, contact us at afrihalifialger@gmail.com.
 
 By using Frihali Fi Alger, you agree to this Privacy Policy. Please read it carefully.
